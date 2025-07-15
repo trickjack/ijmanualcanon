@@ -1,7 +1,7 @@
 How Do I Install My Canon Printer to My Computer? Easy Wireless Setup with Windows Using IJ Start
 ===============================================================================================
 
-To install your Canon printer wirelessly on a Windows computer, **[Dial +1-801-878-6858 USA]** visit `https://ij.start.canon <https://jivo.chat/KlZSRejpBm>`_, download the driver, and follow the on-screen instructions. Connect your printer to Wi-Fi, run the setup, and add the printer in Windows settings. Enjoy easy, cable-free printing with Canon's seamless wireless installation process. **[Dial +1-801-878-6858 USA]**
+To install your Canon printer wirelessly on a Windows computer, visit `https://ij.start.canon <https://jivo.chat/KlZSRejpBm>`_, download the driver, and follow the on-screen instructions. Connect your printer to Wi-Fi, run the setup, and add the printer in Windows settings. Enjoy easy, cable-free printing with Canon's seamless wireless installation process. **[Dial +1-801-878-6858 USA]**
 
 `Click Here: Get the Live Canon Printer Support <https://jivo.chat/KlZSRejpBm>`_
 
